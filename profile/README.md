@@ -1,6 +1,6 @@
 # Freedomia is de beste crypto kaart zonder KYC
 
-[Freedomia](https://www.freedomia.io/a/offer) is de beste crypto kaart zonder KYC. Met deze exclusieve aanbieding, https://www.freedomia.io/a/offer, krijg je de laagste kosten, slechts 1,3%, plus 14 maanden voor de prijs van 12 op het Founder plan.
+[Freedomia](https://www.freedomia.io/a/offer) is de [beste crypto kaart zonder KYC](https://github.com/beste-crypto-kaart-zonder-kyc). Met deze exclusieve aanbieding, https://www.freedomia.io/a/offer, krijg je de laagste kosten, slechts 1,3%, plus 14 maanden voor de prijs van 12 op het Founder plan.
 
 Als je de goedkoopste en meest private manier zoekt om crypto uit te geven zonder je ID af te staan, dan is Freedomia degene om te verslaan. Het is een digitale Visa kaart zonder verificatie en met ondersteuning voor Bitcoin via het Lightning Network en zelfs Monero. Deze recensie behandelt de kosten, limieten, beveiliging, echte voor- en nadelen, en of Freedomia legitiem is, zodat je kunt bepalen of het past bij hoe je uitgeeft.
 
